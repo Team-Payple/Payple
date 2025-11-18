@@ -1,1 +1,7 @@
-[Uploading [TP]_Payple_기획안.pdf…]()
+![해커톤기획서 (1)-6](https://github.com/user-attachments/assets/15ab7057-fa00-4848-9ed2-c11aa898f3da)
+![해커톤기획서 (1)-7](https://github.com/user-attachments/assets/beca8afc-267e-4ee8-ace6-71498b66daba)
+![해커톤기획서 (1)-9](https://github.com/user-attachments/assets/b9e64440-2dc8-45ee-ba67-296811a625e3)
+![해커톤기획서 (1)-9](https://github.com/user-attachments/assets/3b17a703-41f6-4c4c-b1a2-137e582ac47f)
+![해커톤기획서 (1)-10](https://github.com/user-attachments/assets/12961e32-2692-49c8-ba29-8a08de6460b3)
+![해커톤기획서 (1)-11](https://github.com/user-attachments/assets/7ceeba5b-e175-4b1e-ab60-1251b6a76b3b)
+![해커톤기획서 (1)-12](https://github.com/user-attachments/assets/ba10974b-8dcd-40e0-bbb7-7a40258fca9e)
